@@ -17,4 +17,6 @@ Mengapa astronomi? Apa yang menarik dari alam semesta? Memahami bagaimana alam s
 
 Mari jelajahi indahnya alam semesta dan ketahui bagaimana segalanya bekerja.
 
+EST. 17-04-2021
+
 [← Kembali ke awal](./)
